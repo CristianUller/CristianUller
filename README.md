@@ -6,5 +6,8 @@ Entendo bastante de ingles;
 Uso computadores desde os 5 anos
 Sou experiente em jogos eletronicos(principalmente de ação),
 Sou viciado em NECO ARC
-![NecoArcGIF](https://github.com/CristianUller/CristianUller/assets/166440161/1c6c767e-0a05-452a-b191-b272146c605e)
+
+![NecoArcBackroomsGIF](https://github.com/CristianUller/CristianUller/assets/166440161/c851080e-7822-4ae1-91c8-54e29e8b9891)
+
+
 
