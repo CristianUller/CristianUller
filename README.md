@@ -8,7 +8,7 @@ Sou experiente em jogos eletronicos(principalmente de ação),
 Meu jogo favorito é Minecraft,
 
 
-![NecoArcBackroomsGIF](https://github.com/CristianUller/CristianUller/assets/166440161/c851080e-7822-4ae1-91c8-54e29e8b9891)
 
+![打字计算机电脑键盘猫小猫可爱GIF](https://github.com/CristianUller/CristianUller/assets/166440161/f8eba038-da9b-42eb-ae36-e57ff0685aab)
 
 
