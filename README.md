@@ -10,5 +10,6 @@ Meu jogo favorito é Minecraft,
 
 
 
-![ShockedShockedCatGIF](https://github.com/CristianUller/CristianUller/assets/166440161/627586de-3af9-43ad-bb6e-aa606651bfe4)
+
+![Uploading CatGIF.gif…]()
 
