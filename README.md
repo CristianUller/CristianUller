@@ -9,6 +9,6 @@ Meu jogo favorito é Minecraft,
 
 
 
-![打字计算机电脑键盘猫小猫可爱GIF](https://github.com/CristianUller/CristianUller/assets/166440161/f8eba038-da9b-42eb-ae36-e57ff0685aab)
 
+![ShockedShockedCatGIF](https://github.com/CristianUller/CristianUller/assets/166440161/627586de-3af9-43ad-bb6e-aa606651bfe4)
 
